@@ -11,4 +11,4 @@ Electromagnetic environment is radio waves and other electromagnetic radiation a
 The environment of galaxy refers to conditions between the stars.[1
 In psychology and medicine, a person's environment is the people, physical things and places that the person lives with.
 The environment affects the growth and development of the person. 
-Its affect the person body,mind and heart
+Its affect the person body,mind and  heart
